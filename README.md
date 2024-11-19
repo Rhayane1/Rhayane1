@@ -1,5 +1,4 @@
-### Hi my name is Rhayane 👋
-
+oi eu sou a rhayane pra voce que nao sabe kdksoadkoaskoas
 ![](https://media1.tenor.com/m/fSFHaHqqyhgAAAAC/blair-waldorf.gif)
 ![](https://media1.tenor.com/m/dLpnPn9pKjAAAAAd/katniss-everdeen-katniss.gif)
 ![](https://media1.tenor.com/m/L06vybJFesoAAAAC/barbie-movie-waving.gif)
